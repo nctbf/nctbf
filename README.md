@@ -1,1 +1,3 @@
-mainly in pjsk area .
+mainly in hoyoverse area .
+NA : AR 56
+xingqiu main
